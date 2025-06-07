@@ -1,1 +1,2 @@
-![image](https://github.com/user-attachments/assets/a339867e-f73c-44fa-9402-baf549c9916f)
+![aplausos-clapped](https://github.com/user-attachments/assets/458176bd-2c71-4554-9716-e199531e76ab)
+
